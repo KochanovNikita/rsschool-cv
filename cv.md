@@ -1,5 +1,5 @@
 # Kochanov Nikita #
-![](photo_for_cv.jpg)
+
 ### My Contacts ###
 - [Telegram](https://t.me/pieliedie3x)
 - [Vk](https://vk.com/pieliedieee)
